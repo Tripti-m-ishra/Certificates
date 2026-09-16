@@ -66,4 +66,4 @@ It also reinforced the importance of **fairness, human oversight, and regulatory
 
 ## 🎓 Certificate Verification
 
-[View Certificate on Forage](https://www.theforage.com/completion-certificates/ifobHAoMjQs9s6bKS/gMTdCXwDdLYoXZ3w)
+[View Certificate on Forage](https://www.theforage.com/completion-certificates/ifobHAoMjQs9s6bKS/gMTdCXwDdLYoXZ3wG_ifobHAoMjQs9s6bKS_6a0f7bc9b6201b823b49e348_1789593164606_completion_certificate.pdf)
